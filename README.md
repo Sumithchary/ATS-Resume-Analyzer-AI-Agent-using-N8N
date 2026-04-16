@@ -2,6 +2,7 @@ Screenshot 2025-08-30 002254.png
 # 🚀 ATS Resume Analyzer & AI Agent
 <img width="1290" height="738" alt="C:\Users\varah\OneDrive\Pictures\Screenshots\Screenshot 2025-08-30 002254.png" src="Screenshot 2025-08-30 002254.png" />
 
+linkedin - https://www.linkedin.com/posts/sumith-varahala-4400b7298_thrilled-to-share-my-latest-project-i-activity-7389572139181465600-EBLf?utm_source=share&utm_medium=member_desktop&rcm=ACoAAEfq7LABUaLy4IkHbYIZkXLAqNaPGYfAn6M
 
 ## 📌 Overview
 
